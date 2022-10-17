@@ -1,1 +1,1 @@
-# Individual Research Project Timofey Tsutskarev
+# Individual Research Project by Timofey Tsutskarev
